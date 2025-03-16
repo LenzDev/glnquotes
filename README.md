@@ -1,1 +1,1 @@
-# glnquotes
+#maling yapit
